@@ -1,5 +1,5 @@
 ## Hi there, I’m Olip aka [olivia24sbr][website 1]👋
- [slmolv][website
+ 
 ### I’m a student at geophysics
 
 - 🖊  I’m study at Univeritas Gadjah Mada
